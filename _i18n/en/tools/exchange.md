@@ -1,5 +1,5 @@
 Trade eos**DAC Token**
 ===
 
-Trade **EOSDAC** Token on the below exchanges
+Биржи открытые для торговли **EOSDAC**
 
